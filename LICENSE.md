@@ -1,4 +1,4 @@
-# 
+# Enhance Notion for Windows with professional Notion for Windows Automation | collaboration + folders, the #1 automation. Includes collaboration and folders for a smoother and more
 
 
 
